@@ -1,7 +1,7 @@
 # FXroad: My First Investment in 2025 - A Complete Trader's Review with Deposit & Earning Hacks
 
 When I decided to make my first serious forex investment in 2025, the choice of broker felt overwhelming. After extensive research and demo testing across multiple platforms, I settled on FXroad as my primary trading partner. Seven months into this journey, I've discovered numerous optimization strategies, deposit hacks, and earning techniques that have transformed my trading results. This comprehensive review shares my real experience and the specific methods that made my FXroad investment profitable.
-
+![FXroad Logo](https://github.com/honest-reviews-2025/FXroad-review-2025/blob/af3d4236b30b569c467df23f7bf9c06f85a1f44d/fxroad%20home%20screen.png)
 ## Why FXroad Stood Out in 2025
 
 The forex industry has evolved significantly, and 2025 brought new challenges that required a modern, adaptable broker. FXroad impressed me during my evaluation process for several critical reasons.
